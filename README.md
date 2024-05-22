@@ -1,1 +1,1 @@
-Dogs are pack animals by nature and thrive on social interaction, which is why they may experience separation anxiety when left alone for extended periods.
+Dolphins are known for their playful behavior and have been observed riding waves and playing with objects like seaweed and bubbles.
