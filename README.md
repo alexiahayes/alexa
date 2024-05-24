@@ -1,1 +1,1 @@
-The male seahorse is the only animal in the world that undergoes pregnancy and gives birth to live young, with the female depositing her eggs in a pouch on the male's abdomen.
+The leaf-tailed gecko, native to Madagascar, has evolved to resemble dead leaves with its flattened body and leaf-like appendages, providing excellent camouflage from predators.
