@@ -1,1 +1,1 @@
-The leaf-tailed gecko, native to Madagascar, has evolved to resemble dead leaves with its flattened body and leaf-like appendages, providing excellent camouflage from predators.
+Regular exercise is essential for a dog's physical and mental health, helping to prevent obesity, improve cardiovascular health, and reduce behavioral issues.
