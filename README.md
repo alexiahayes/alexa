@@ -1,1 +1,1 @@
-The average lifespan of a dog varies by breed and size but typically ranges from 10 to 13 years, although some breeds can live significantly longer.
+Small dog breeds tend to live longer than larger breeds, with some toy breeds like Chihuahuas and Dachshunds living into their late teens or early twenties.
