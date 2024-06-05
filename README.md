@@ -1,1 +1,1 @@
-Cats are natural hunters with sharp claws, keen eyesight, and excellent agility, allowing them to stalk and capture prey with precision.
+Some breeds, like Siamese and Oriental cats, are known for their vocalizations and will "talk" to their owners with meows, chirps, and trills.
