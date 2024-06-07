@@ -1,1 +1,1 @@
-Some breeds, like Siamese and Oriental cats, are known for their vocalizations and will "talk" to their owners with meows, chirps, and trills.
+The male seahorse is the only animal in the world that undergoes pregnancy and gives birth to live young, with the female depositing her eggs in a pouch on the male's abdomen.
