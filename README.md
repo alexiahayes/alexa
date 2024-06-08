@@ -1,1 +1,1 @@
-The male seahorse is the only animal in the world that undergoes pregnancy and gives birth to live young, with the female depositing her eggs in a pouch on the male's abdomen.
+Proper nutrition is vital for dogs' overall well-being, with balanced diets tailored to their age, size, and activity level.
