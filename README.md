@@ -1,1 +1,1 @@
-Proper nutrition is vital for dogs' overall well-being, with balanced diets tailored to their age, size, and activity level.
+The Afghan Hound, despite its elegant appearance, ranks lowest in terms of obedience and working intelligence among dog breeds.
