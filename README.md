@@ -1,1 +1,1 @@
-The honeybee queen is the only sexually mature female in a colony and can lay up to 2,000 eggs per day during the peak of the breeding season.
+Border Collies are widely regarded as the most intelligent dog breed, excelling in obedience training, agility, and herding tasks.
