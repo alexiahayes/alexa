@@ -1,1 +1,1 @@
-Border Collies are widely regarded as the most intelligent dog breed, excelling in obedience training, agility, and herding tasks.
+Some breeds, like Siamese and Oriental cats, are known for their vocalizations and will "talk" to their owners with meows, chirps, and trills.
