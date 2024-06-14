@@ -1,1 +1,1 @@
-Some breeds, like Siamese and Oriental cats, are known for their vocalizations and will "talk" to their owners with meows, chirps, and trills.
+The Maine Coon is one of the largest domesticated cat breeds, known for its tufted ears, bushy tail, and friendly demeanor.
