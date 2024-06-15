@@ -1,1 +1,1 @@
-The Maine Coon is one of the largest domesticated cat breeds, known for its tufted ears, bushy tail, and friendly demeanor.
+Dental care is often overlooked but crucial for maintaining a dog's oral health, preventing issues like gum disease, tooth decay, and bad breath.
