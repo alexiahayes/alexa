@@ -1,1 +1,1 @@
-Proper nutrition is vital for dogs' overall well-being, with balanced diets tailored to their age, size, and activity level.
+The peregrine falcon is the fastest animal on Earth, capable of diving at speeds of over 240 miles per hour when hunting prey.
