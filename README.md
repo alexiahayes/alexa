@@ -1,1 +1,1 @@
-The peregrine falcon is the fastest animal on Earth, capable of diving at speeds of over 240 miles per hour when hunting prey.
+Elephants are highly social animals that exhibit complex behaviors such as mourning their dead and forming strong familial bonds that can last a lifetime.
