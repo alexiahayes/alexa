@@ -1,1 +1,1 @@
-Elephants are highly social animals that exhibit complex behaviors such as mourning their dead and forming strong familial bonds that can last a lifetime.
+The Basenji, known as the "barkless dog," doesn't bark like other dogs but instead produces a unique yodel-like sound.
