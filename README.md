@@ -1,1 +1,1 @@
-The Basenji, known as the "barkless dog," doesn't bark like other dogs but instead produces a unique yodel-like sound.
+Dolphins are known for their playful behavior and have been observed riding waves and playing with objects like seaweed and bubbles.
