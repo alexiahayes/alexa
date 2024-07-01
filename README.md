@@ -1,1 +1,1 @@
-Dolphins are known for their playful behavior and have been observed riding waves and playing with objects like seaweed and bubbles.
+The male deep-sea anglerfish attaches itself to the much larger female using specialized teeth, eventually fusing with her bloodstream and becoming a permanent parasite.
