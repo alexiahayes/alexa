@@ -1,1 +1,1 @@
-The leaf-tailed gecko, native to Madagascar, has evolved to resemble dead leaves with its flattened body and leaf-like appendages, providing excellent camouflage from predators.
+The blue whale is the largest animal ever known to have existed, with lengths of up to 100 feet and weights of up to 200 tons.
