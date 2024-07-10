@@ -1,1 +1,1 @@
-Dental care is often overlooked but crucial for maintaining a dog's oral health, preventing issues like gum disease, tooth decay, and bad breath.
+Small dog breeds tend to live longer than larger breeds, with some toy breeds like Chihuahuas and Dachshunds living into their late teens or early twenties.
