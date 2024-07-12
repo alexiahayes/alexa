@@ -1,1 +1,1 @@
-Small dog breeds tend to live longer than larger breeds, with some toy breeds like Chihuahuas and Dachshunds living into their late teens or early twenties.
+The arctic tern migrates from the Arctic to the Antarctic and back each year, covering a distance of over 44,000 miles, the longest migration of any animal.
