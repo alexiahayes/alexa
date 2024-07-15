@@ -1,1 +1,1 @@
-The arctic tern migrates from the Arctic to the Antarctic and back each year, covering a distance of over 44,000 miles, the longest migration of any animal.
+The blue whale is the largest animal ever known to have existed, with lengths of up to 100 feet and weights of up to 200 tons.
