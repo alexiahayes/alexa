@@ -1,1 +1,1 @@
-The Sphynx cat, known for its hairless appearance, actually has a fine layer of downy fur that gives it a soft, suede-like texture.
+The mantis shrimp has the most complex eyesight of any animal, with 16 color-receptive cones compared to humans' three.
