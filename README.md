@@ -1,1 +1,1 @@
-The mantis shrimp has the most complex eyesight of any animal, with 16 color-receptive cones compared to humans' three.
+The average lifespan of a dog varies by breed and size but typically ranges from 10 to 13 years, although some breeds can live significantly longer.
