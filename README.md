@@ -1,1 +1,1 @@
-The average lifespan of a dog varies by breed and size but typically ranges from 10 to 13 years, although some breeds can live significantly longer.
+Dogs have an extraordinary sense of smell, with some breeds, like Bloodhounds, having up to 300 million scent receptors, compared to humans' 5 million.
